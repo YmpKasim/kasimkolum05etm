@@ -1,1 +1,0 @@
-# kasimkolum05etm
